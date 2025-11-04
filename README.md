@@ -1,1 +1,1 @@
-# IC - Emanuel Pinto Sampaio
+# IC 
